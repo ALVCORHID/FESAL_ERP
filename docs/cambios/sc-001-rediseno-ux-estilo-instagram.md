@@ -6,7 +6,7 @@ Propuesta · 12 de noviembre de 2026
 
 ## Quién la pide
 
-&lt;nombre&gt;, integrante de la mesa directiva de FESAL.
+Juan Pablo Mues, presidente de la mesa directiva de FESAL.
 
 ## Qué se pide
 
